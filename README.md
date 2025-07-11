@@ -27,4 +27,4 @@
 结语  
 现在获取优质的日本AV资源已变得非常简单，只需选择一个合规、资源丰富的平台，就能尽情享受属于你的观影时光。记得优先保障浏览安全，观影才更尽兴。  
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/ron676577/javrb4)</span>
